@@ -8,4 +8,5 @@ I also go in for sports and music, I am a certified ski instructor)
 5. no code examples
 6. Experience: electronic engineer, design engineer, leading design engineer, deputy head of department, alpine ski instructor)
 7. Higher engineering education
+8. English (pre-intermediate - intermediate)
 
